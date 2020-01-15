@@ -1,2 +1,2 @@
-おまえはうまそうだな～banana
+おまえはうまそうだな～bananababanana
 # test
